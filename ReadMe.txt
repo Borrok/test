@@ -1,0 +1,1 @@
+storywise unfinished. will be continued once i have a good idea for a short story.
